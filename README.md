@@ -1,0 +1,1 @@
+Week 1 | 21/06/2020 - O Gama Experience tem me apresentado uma nova perspectiva sobre minha jornada, em que o desenvolvimento pessoal e social está diretamente aliado com o profissional, e a empatia e autoconhecimento surgem como chaves para a inovação e transformação dentro da minha carreira. Me sinto muito animada e pronta para o desafio que está por vir. #gogama
